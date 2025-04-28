@@ -1,4 +1,4 @@
-## श्रीगणेशाय, _śrīgaṇeśāya_: “(salutations to) the revered gaṇeśa“[^1]
+## श्रीगणेशाय नमः, _śrīgaṇeśāya namaḥ_: “salutations to the śrī gaṇeśa“[^1]
 
 ![img](423343001.jpg)<br>
 [Representation of: Gaṇeśa](https://www.britishmuseum.org/collection/object/A_2007-3005-46), via The Trustees of the British Museum (CC BY-NC-SA 4.0)
